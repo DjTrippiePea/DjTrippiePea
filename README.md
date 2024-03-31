@@ -1,5 +1,8 @@
+https://www.google.com/imgres?q=matirx%20green%201%20and%200%20rectangual%20shape&imgurl=https%3A%2F%2Ft3.ftcdn.net%2Fjpg%2F02%2F16%2F87%2F52%2F360_F_216875234_TiTvjcS0qdO2sbJyAuDi3TW4hRZz7IBR.jpg&imgrefurl=https%3A%2F%2Fstock.adobe.com%2Fimages%2Fbinary-matrix-1-0-bits-green-abstract-background%2F216875234&docid=Tvql5mM8Sq3DjM&tbnid=Y36d_f7vTENNLM&vet=12ahUKEwjE-OLeuZ-FAxXVGFkFHVLDC88QM3oECBwQAA..i&w=720&h=360&hcb=2&ved=2ahUKEwjE-OLeuZ-FAxXVGFkFHVLDC88QM3oECBwQAA
+
+
 💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
-### 👋 Hi there 👋
+### 👋 Hi there 👋https://www.google.com/imgres?q=matirx%20green%201%20and%200%20rectangual%20shape&imgurl=https%3A%2F%2Ft3.ftcdn.net%2Fjpg%2F02%2F16%2F87%2F52%2F360_F_216875234_TiTvjcS0qdO2sbJyAuDi3TW4hRZz7IBR.jpg&imgrefurl=https%3A%2F%2Fstock.adobe.com%2Fimages%2Fbinary-matrix-1-0-bits-green-abstract-background%2F216875234&docid=Tvql5mM8Sq3DjM&tbnid=Y36d_f7vTENNLM&vet=12ahUKEwjE-OLeuZ-FAxXVGFkFHVLDC88QM3oECBwQAA..i&w=720&h=360&hcb=2&ved=2ahUKEwjE-OLeuZ-FAxXVGFkFHVLDC88QM3oECBwQAA
 ### 🎧🎵🎶 About Dj Trippie Pea (Sean Jordan Smith) 🎧🎵🎶
 Dj Trippie Pea is not only a DJ but also a visionary in the realm of computer science, leveraging his profound understanding of algorithms and programming languages to engineer transformative solutions. With his adept mastery of technology and his ability to craft intricate code structures akin to composing beats and melodies, he engineers digital experiences that transcend boundaries, connecting users on a deeper level and catalyzing positive change in the technological landscape.
 
