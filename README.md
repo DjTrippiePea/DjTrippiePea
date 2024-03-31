@@ -11,16 +11,6 @@ Dj Trippie Pea understands that in the ever-evolving landscape of computer scien
 ### ❤️ Love ❤️
 Love is the foundation of everything we do. It's what drives us to create music and life changing software porgrams that touche hearts and inspires change.
 
-    /\
-   /  \
-  /    \
- /      \
- \      /
-  \    /
-   \  /
-    \/
-
-
 ### ✌️ Peace ✌️
 In a world filled with chaos and noise, we strive to be a beacon of peace and tranquility. Through our music, we aim to create moments of serenity and harmony.
 
@@ -36,14 +26,9 @@ As an advocate for holistic wellness, I am deeply passionate about exploring the
 ## 🤖 Technology and AI for a Better World 🤖
 
 We also embrace technology and artificial intelligence as tools for making the world a better place. Through innovation and creativity, we harness the power of technology to amplify our message of love, peace, and prosperity. Whether it's using AI algorithms to create mesmerizing visual effects during our performances or leveraging technology to reach a global audience, we believe in the transformative potential of technology to elevate human consciousness and foster positive change.
-
-  _______ 
- /       \
-|   ☘️ ☘️   |
-|  🎩🍀🎩🍀  |
-|   🌈🌈   |
- \_______/
-
+ 
+  ☘️ ☘️
+  🍀 🍀  
 
 ## 👍📱🔔 Connect with Us 👍📱🔔
 
@@ -53,17 +38,9 @@ We also embrace technology and artificial intelligence as tools for making the w
 - **Twitter:** [@DjTrippiePea] [(https://twitter.com/DJTrippiePea)]
 
 💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
-W         W  AAAAA  K     K  EEEEE
-W         W  A    A  K   K    E
-W    W    W  AAAAAA  KKKK     EEEE
-W  W   W  W  A    A  K   K    E
-W W     W W  A    A  K     K  EEEEE
+
 💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
- U     U   PPPPPP    💎💎💎💎💎💎
- U     U   P     P   💎💎💎💎💎💎
- U     U   PPPPPP    💎💎💎💎💎💎
- U     U   P         💎💎💎💎💎💎
-  UUUUU    P         💎💎💎💎💎💎
+
 💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
 <!--https://github.com/MarikIshtar007/MarikIshtar007/blob/master/images/matrix.gif
 **DjTrippiePea/DjTrippiePea** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
