@@ -1,13 +1,9 @@
 💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
 ### 👋 Hi there 👋
-
-<!--https://github.com/MarikIshtar007/MarikIshtar007/blob/master/images/matrix.gif
-**DjTrippiePea/DjTrippiePea** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-## 🎧🎵🎶 About Dj Trippie Pea (Sean Jordan Smith) 🎧🎵🎶
+### 🎧🎵🎶 About Dj Trippie Pea (Sean Jordan Smith) 🎧🎵🎶
 Dj Trippie Pea is not only a DJ but also a visionary in the realm of computer science, leveraging his profound understanding of algorithms and programming languages to engineer transformative solutions. With his adept mastery of technology and his ability to craft intricate code structures akin to composing beats and melodies, he engineers digital experiences that transcend boundaries, connecting users on a deeper level and catalyzing positive change in the technological landscape.
 
-## 💎 Some of The Real Established Portal Values 💎
+### 💎 Some of The Real Established Portal Values 💎
 
 ### 📚 Learning 📚
 Dj Trippie Pea understands that in the ever-evolving landscape of computer science, learning is paramount. He embraces a lifelong journey of discovery, recognizing that continuous learning not only enhances technical proficiency but also fosters innovation and personal growth.
@@ -69,3 +65,7 @@ W W     W W  A    A  K     K  EEEEE
  U     U   P         💎💎💎💎💎💎
   UUUUU    P         💎💎💎💎💎💎
 💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
+<!--https://github.com/MarikIshtar007/MarikIshtar007/blob/master/images/matrix.gif
+**DjTrippiePea/DjTrippiePea** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+
