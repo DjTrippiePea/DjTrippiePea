@@ -39,11 +39,11 @@ We also embrace technology and artificial intelligence as tools for making the w
 - **Facebook:** [@DjTrippiePea][(https://www.facebook.com/DjTrippiePea/)]
 - **Twitter:** [@DjTrippiePea] [(https://twitter.com/DJTrippiePea)]
 
-💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
+💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
 
-💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
+💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
 
-💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
+💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
                           ![The Matrix Wake up](https://github.com/DjTrippiePea/DjTrippiePea/assets/163033501/038691a4-7cf3-46c6-8bd8-6e7dc5868d95)
 
 <!--https://github.com/MarikIshtar007/MarikIshtar007/blob/master/images/matrix.gif
