@@ -1,6 +1,6 @@
 💎💎💎💎💎💎💎💎💎💎💎💎💎
 ![The matrix backround](https://github.com/DjTrippiePea/DjTrippiePea/assets/163033501/db5a1cff-8941-4762-bd28-52781347d00e)
-💎💎💎💎💎💎💎💎💎💎💎💎💎
+💎💎💎💎💎💎💎💎💎💎💎💎
 ### 👋 Hi there 👋
 ### 🎧🎵🎶 About Dj Trippie Pea (Sean Jordan Smith) 🎧🎵🎶
 Dj Trippie Pea is not only a DJ but also a visionary in the realm of computer science, leveraging his profound understanding of algorithms and programming languages to engineer transformative solutions. With his adept mastery of technology and his ability to craft intricate code structures akin to composing beats and melodies, he engineers digital experiences that transcend boundaries, connecting users on a deeper level and catalyzing positive change in the technological landscape.
@@ -44,7 +44,9 @@ We also embrace technology and artificial intelligence as tools for making the w
 💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
 
 💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
+                          ![The Matrix Wake up](https://github.com/DjTrippiePea/DjTrippiePea/assets/163033501/038691a4-7cf3-46c6-8bd8-6e7dc5868d95)
+
 <!--https://github.com/MarikIshtar007/MarikIshtar007/blob/master/images/matrix.gif
 **DjTrippiePea/DjTrippiePea** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+                             
 
