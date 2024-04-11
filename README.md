@@ -1,8 +1,8 @@
-💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
+💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
 
 ![The matrix backround](https://github.com/DjTrippiePea/DjTrippiePea/assets/163033501/db5a1cff-8941-4762-bd28-52781347d00e)
 
-💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
+💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎💎
 ### 👋 Hi there 👋
 ### 🎧🎵🎶 About Dj Trippie Pea (Sean Jordan Smith) 🎧🎵🎶
 Dj Trippie Pea is not only a DJ but also a visionary in the realm of computer science, leveraging his profound understanding of algorithms and programming languages to engineer transformative solutions. With his adept mastery of technology and his ability to craft intricate code structures akin to composing beats and melodies, he engineers digital experiences that transcend boundaries, connecting users on a deeper level and catalyzing positive change in the technological landscape.
