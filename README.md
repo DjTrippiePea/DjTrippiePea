@@ -1,5 +1,6 @@
 💎💎💎💎💎💎💎💎💎💎💎💎💎
 ![The matrix backround](https://github.com/DjTrippiePea/DjTrippiePea/assets/163033501/db5a1cff-8941-4762-bd28-52781347d00e)
+
 💎💎💎💎💎💎💎💎💎💎💎
 ### 👋 Hi there 👋
 ### 🎧🎵🎶 About Dj Trippie Pea (Sean Jordan Smith) 🎧🎵🎶
